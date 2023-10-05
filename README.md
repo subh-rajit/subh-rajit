@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @subh-rajit
 - 👀 I’m interested in APP DEVELOPMENT for ios as well as anroid
-- 🌱 I’m currently learning at SRMIST VDP
+- 🌱 I’m currently studing at SRMIST VDP
 - 💞️ I’m looking to collaborate with google
 - 📫 How to reach me you can reach me using social media given below:
 - insta:subhrajit725
